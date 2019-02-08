@@ -1,1 +1,1 @@
-![End of the Course Proof](../../end of the course proof2.PNG "Screenshot")
+![End of the Course Proof](https://imgur.com/a/uP666h0)
